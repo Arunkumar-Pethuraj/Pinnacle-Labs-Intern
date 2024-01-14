@@ -14,6 +14,6 @@ https://github.com/Arunkumar-Pethuraj/Pinnacle-Labs-Intern/assets/153414462/e421
 
 ![Screenshot (528)](https://github.com/Arunkumar-Pethuraj/Pinnacle-Labs-Intern/assets/153414462/a612b734-e312-44a4-80bd-e8f90ecb5713)
 
-https://github.com/Arunkumar-Pethuraj/Pinnacle-Labs-Intern/assets/153414462/20cbd2f8-aa12-4b38-8d75-459fa7419574
+https://github.com/Arunkumar-Pethuraj/Pinnacle-Labs-Intern/assets/153414462/8a7cdccf-2568-4843-a895-e1fefe19ad5b
 
 <br>
